@@ -1,1 +1,0 @@
-# presned kyc
